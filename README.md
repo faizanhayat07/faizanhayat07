@@ -96,6 +96,6 @@
 
 *"Keep learning, keep building."* 🚀
 
-**⭐ Star karo agar pasand aya!**
+**"If you like what you see, drop a ⭐ — it means a lot!"**
 
 </div>
